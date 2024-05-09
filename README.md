@@ -12,3 +12,7 @@ Front-desk receptionist, Future Youth Zone
 Wealth of nations report
 Impact of Covid-19 on Education
 
+<h3><b></b>Projects</b></h3>
+
+Wealth 
+
