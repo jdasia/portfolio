@@ -1,7 +1,7 @@
 # Data Technician
 
 ### Education
-Data Technician Level 3, Just IT Ltd [2024]
+Data Technician Level 3, Just IT Ltd [2024] </b>
 CertHE Psychology, London South Bank University [2021]
 
 ### Work Experience
